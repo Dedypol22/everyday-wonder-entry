@@ -2,7 +2,7 @@
 
 On a rainy bus ride, the window fogs with the rider's own breath, and a
 fingertip draws a door in the condensation - an escape hatch sketched in
-mid-air. The joke of the sentence is that the door opens onto nothing but
+mid-air. The turn of the sentence is that the door opens onto nothing but
 more rain: the very weather the rider was trying to leave. The wonder is
 small and exact - breath, fingertip, fog - and the strangeness comes from
 the door leading nowhere new, only deeper into the ordinary.
